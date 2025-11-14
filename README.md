@@ -1,11 +1,6 @@
 <!DOCTYPE html>
 <html>
 <head>
-<style>
-img {
-  border-radius: 8px;
-}
-</style>
 </head>
 <body>
 
