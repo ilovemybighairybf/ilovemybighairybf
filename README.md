@@ -1,16 +1,15 @@
-<!DOCTYPE html>
-<html>
-<head>
-</head>
-<body>
 
-<h2>fuk</h2>
+<p align="center">
+<h4 align="center"
 
-<p>My name Juliek.</p>
+<p align="center">
 
-<img src="https://fgsfds72.carrd.co/assets/images/image01.jpg?v=0d902077" alt="Paris" width="190" height="150">&nbsp;&nbsp;&nbsp;<img src="https://media.tenor.com/nq5mtWwKXbgAAAAi/chiikawa-love.gif" alt="chiikawa" style="width:90px;height:90px;">
+Hi i'm juliek :3 
 
-</body>
-</html>
+<p align="center">
+<a> I'm on ponytown a lot in hopes of finding friends </a></a>
 
+<p align="center"><img src="https://media.tenor.com/nq5mtWwKXbgAAAAi/chiikawa-love.gif"width="100" height="100"></p>
 
+<p align="center">
+ <a href="https://ineedtopeesobadrn.straw.page/">STRAWPAGE</a> ⟡ <a href="https://rentry.co/tnkk/">RENTRY</a>
