@@ -19,4 +19,4 @@ Boundaries: </br>
 
 
 <p align="center">
- <a href="ponystrider.straw.page">STRAWPAGE</a></a>
+ <a href="https://ponystrider.straw.page">STRAWPAGE</a></a>
