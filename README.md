@@ -14,7 +14,7 @@ whisper to interact if i don't look active
 
 Boundaries: </br>
 </br>
--inspo is ok, no dni
+-inspo is ok
 
 
 
