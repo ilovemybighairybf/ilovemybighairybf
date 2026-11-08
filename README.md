@@ -14,7 +14,7 @@ whisper to interact if i don't look active
 
 BYI: </br>
 </br>
--inspo is ok
+-inspo is ok </br>
 -i like to rp a lot joke or not so ask if im being srs or not if ur confused
 
 
