@@ -12,10 +12,10 @@ whisper to interact if i don't look active
 
 <p align="center"><img src="https://media.tenor.com/nq5mtWwKXbgAAAAi/chiikawa-love.gif"width="100" height="100"></p>
 
-Boundaries: </br>
+BYI: </br>
 </br>
 -inspo is ok
-
+-i like to rp a lot joke or not so ask if im being srs or not if ur confused
 
 
 <p align="center">
