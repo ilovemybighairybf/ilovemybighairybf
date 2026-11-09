@@ -20,7 +20,7 @@ BYI: </br>
 
  <p align="center">
 
-Hi i'm joe </br> He/Him ᯈ transmasc enboy
+main fandoms: Homestuck, Death Stranding, MGS, YTTD, Pathologic
 
 <p align="center">
  
