@@ -12,16 +12,17 @@ whisper to interact if i don't look active
 
 <p align="center"><img src="https://media.tenor.com/nq5mtWwKXbgAAAAi/chiikawa-love.gif"width="100" height="100"></p>
 
+ <p align="center">
+
+main fandoms: Homestuck, Death Stranding, MGS, YTTD, Pathologic
+
+<p align="center">
+
 BYI: </br>
 </br>
 -inspo is ok </br>
 -i like to RP a lot joke or not, so ask if im being srs if ur confused
 <p align="center">
 
- <p align="center">
-
-main fandoms: Homestuck, Death Stranding, MGS, YTTD, Pathologic
-
-<p align="center">
  
  <a href="https://ponystrider.straw.page">STRAWPAGE</a></a>
