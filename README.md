@@ -4,7 +4,7 @@
 
 <p align="center">
 
-Hi i'm joe
+Hi i'm joe </br> He/Him ᯈ transmasc enboy
 
 <p align="center">
 <a> I'm on ponytown a lot in hopes of finding friends </a></a> </br>
