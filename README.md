@@ -16,7 +16,12 @@ BYI: </br>
 </br>
 -inspo is ok </br>
 -i like to RP a lot joke or not, so ask if im being srs if ur confused
+<p align="center">
 
+ <p align="center">
+
+Hi i'm joe </br> He/Him ᯈ transmasc enboy
 
 <p align="center">
+ 
  <a href="https://ponystrider.straw.page">STRAWPAGE</a></a>
